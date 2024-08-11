@@ -5,6 +5,3 @@ I can sell this product to you wholesale and individually
 DM ME ON TELEGRAM OR DISCORD: tel: https://t.me/Omoriaam       | DISCORD:@omoriam
 
 
-proof:
-
-![image](https://github.com/user-attachments/assets/e05930f0-f02d-4124-abbd-ee05d9a5b32a)
