@@ -1,4 +1,4 @@
-this is a part of my passlist ive more than 100 text documents made of ```{universal from arund the world- numbers - alphabet and my own special passlist}``` ON SALE for only 100 USDT
+this is a part of my passlist ive more than 100 text documents made of ```{universal - numbers - alphabet and my own special passlist}``` ON SALE for only 30$ USDT
 
 I can sell this product to you wholesale and individually
 
